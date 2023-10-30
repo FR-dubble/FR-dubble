@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FR-dubble
 - 👀 I’m interested in [u] (jk)
 - 🌱 I’m currently learning [nuthin]
-- 💞️ I’m looking to collaborate on [me]
+- 💞️ I’m looking to collaborate with [me]
 - 📫 How to reach me [here]
 -🥍🏈 Those are sports i play
 
